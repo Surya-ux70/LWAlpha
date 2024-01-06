@@ -1,4 +1,4 @@
 # LWAlpha
 learinng on YT
 <br>
-Author : Surya Pavan
+Author : Surya Pavan (Surii)
